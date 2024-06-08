@@ -13,7 +13,7 @@ Phone Number: +60 11-16356488
 
 Our product consists of different car brands such as : Ferrari,lamborghini,mercedes-benz, bmw,alfa romeo,rolls royce,bentleys,porsche,range rover,mclaren,land rover and range rover.
 
-Ordering process: Send us ur query thru our whatsapp and we will be right back to you when it our working hours.Besides if you need a test drive pls contact this number +60-01317358499 for registration to test drive.
+Ordering process: Send us ur query thru our whatsapp and we will be right back to you when it our working hours.Besides if you need a test drive pls contact this number +60-1317358499 for registration to test drive.
 
 if you need any customization, u can also contact our store for query on csustomization for your car.
 
