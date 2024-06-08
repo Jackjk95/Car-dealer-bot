@@ -1,4 +1,5 @@
 Shop information
+Shop Name: Luxury car automotive
 
 Owner : Mr Jia Kang (Bachelor in Business Management with Honours)
                     (Bachelor of Technology in Automotive with Honours) 
