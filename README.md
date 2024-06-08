@@ -22,5 +22,8 @@ Promotions: We are doing a promotion with purchasing our car and we will provide
 Tax: 10% Government tax
      10% import tax
 
+Car delivery: We also provide services that delivery car to your house but it will add on a extra cost according to where you live? For more information, pls contact our manager Mr. Yow Jiunn by his mobile +60 16 36547388
+Birthday service: If you want to surprise your love one with a car surprise, we can deliver car to your house with some decoration for birhtday, if you need this service pls call our manager: Mr.Yow Jiunn by his mobile +60-16 36547388 for more info about the prices.
+
 
 
